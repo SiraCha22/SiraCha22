@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @SiraCha22
+- 👀 I’m interested in UX design, project management and other techniques
+- 🌱 I’m currently learning > - 
+- 💞️ I’m looking to collaborate on > UX design projects
+- 📫 How to reach me > siraprapa.chalermphao@gmail.com
